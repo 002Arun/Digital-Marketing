@@ -20,4 +20,4 @@ Assignment links:
 
 4)Email Newsletter Design-https://destinylife2109.blogspot.com/2023/10/shelf-of-tales-e-mail-news-letter.html
 
-demo ideo link-https://youtu.be/RG2SJgBeRDE?si=NjsBceHhKT-JtiTt
+Demo Video Link-https://youtu.be/RG2SJgBeRDE?si=NjsBceHhKT-JtiTt
